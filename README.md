@@ -1,9 +1,14 @@
 ### Hi there 👋
 
 <!--
-**sertanhil/sertanhil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I completed Istanbul Kultur University Civil Aviation and Transportation Management associate degree in 2018-2020. I got my first work experience as an Operations position as an Inditex employee in the 2018-2020 study. I am currently studying 1st year Aviation Management at Anadolu University.
 
-Here are some ideas to get you started:
+I care about keeping good team relations and doing my job diligently, and my priority is to work solution-oriented.
+
+Instagram:instagram.com/sertanhil/
+Twitter:twitter.com/setojrr
+Behance:behance.net/sertanhil
+Artstation:artstation.com/setojr
 
 - 🔭 I’m currently working in every field , triying to improve myself 
 - 🌱 I’m currently learning substance painter
